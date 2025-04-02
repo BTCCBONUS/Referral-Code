@@ -1,6 +1,8 @@
 <h1>BTCC Referral Code 2025 – Earn Bonuses & Commissions</h1>
 <h2>Introduction</h2>
 <p>BTCC, a trusted cryptocurrency exchange, offers an attractive referral program that rewards users for bringing new traders to the platform. By using a BTCC referral code, also referred to as an invitation code, promo code, or affiliate link, both new users and referrers can benefit from bonuses and commission rewards. In this updated 2025 guide, we’ll explore how to sign up, claim rewards, and maximize earnings with the BTCC referral system.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>What is the BTCC Referral Program?</h2>
 <p>The BTCC referral program allows existing users to earn commissions by inviting new traders. When a new user signs up with a valid BTCC sign-up code, they receive an exclusive welcome bonus, while the referrer earns ongoing rewards based on the new user's trading activity.</p>
 <h2>Benefits of the BTCC Referral System</h2>
