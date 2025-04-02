@@ -2,6 +2,7 @@
 
 <h2>Introduction</h2>
 <p>As cryptocurrency trading continues to evolve, platforms like BTCC stand out with their innovative services and user-friendly mobile applications. If you're a mobile user looking to maximize your benefits on BTCC, utilizing a <strong>BTCC referral code</strong> is a smart move. Whether you're a beginner or an experienced trader, a referral code can unlock exclusive bonuses, discounts, and trading perks. This guide covers everything you need to know about using a <strong>BTCC referral code</strong> on your mobile device, including step-by-step instructions, benefits, and FAQs.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>What is BTCC?</h2>
 <p>BTCC is a leading cryptocurrency exchange offering a secure and efficient trading environment. From spot trading to futures and options, BTCC provides access to a variety of crypto assets. Its mobile app is a game-changer, allowing traders to stay active on the go.</p>
