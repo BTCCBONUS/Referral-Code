@@ -1,6 +1,8 @@
 <h1>BTCC Fees & Discounts: Maximize Savings with a Referral Code</h1>
 <h2>Introduction</h2>
 <p>BTCC is a leading cryptocurrency exchange, offering a powerful trading platform with competitive fees and attractive discount programs. To help users save on trading costs, BTCC provides various incentives, including referral codes, promo codes, and signup bonuses.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC Fee Structure</h2>
 <h3>Spot Trading Fees</h3>
 <p>BTCC offers competitive spot trading fees based on your 30-day trading volume. New users can significantly reduce fees by applying a BTCC referral bonus or discount code during registration.</p>
