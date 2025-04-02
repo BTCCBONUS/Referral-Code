@@ -1,6 +1,8 @@
 <h1>BTCC Referral Code 'BTCCBONUS' – Get Up to 11,000 USDT & 50% Off Trading Fees</h1>
 <h2>Maximize Your Trading Rewards with BTCC</h2>
 <p>Looking to boost your trading experience on BTCC? Use the latest BTCC referral code '<strong>BTCCBONUS</strong>' and unlock exclusive benefits, including a signup bonus of up to <strong>11,000 USDT</strong> and a <strong>50% discount</strong> on trading fees.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC Bonus Details</h2>
 <table>
 <tr>
