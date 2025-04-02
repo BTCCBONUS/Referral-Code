@@ -1,6 +1,8 @@
 <h1>How to Register on BTCC with a Referral Code and Unlock Exclusive Bonuses</h1>
 <h2>Introduction</h2>
 <p>BTCC (Bitcoin Trading Company) is a leading cryptocurrency exchange, offering users a secure and feature-rich trading experience. Signing up with a <strong>BTCC referral code</strong> can unlock valuable rewards, including up to <strong>11,000 USDT in bonuses</strong>, a <strong>50% discount on trading fees</strong>, and more. This guide walks you through the step-by-step process of registering on BTCC using a <strong>referral or promo code</strong> to maximize your benefits.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>Why Use a BTCC Referral Code?</h2>
     <ul>
   <li><strong>Sign-up Bonus</strong> – Get exclusive rewards for new users.</li>
