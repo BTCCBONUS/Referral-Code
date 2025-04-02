@@ -1,7 +1,8 @@
 <h1>BTCC Referral Code 2025: Get Discounts & Bonuses</h1>
 <h2>Introduction</h2>
 <p>BTCC, one of the longest-standing cryptocurrency exchanges, offers exciting rewards through its referral program. If you’re looking to maximize your trading benefits, the BTCC referral code for 2025 provides exclusive bonuses and fee discounts. Whether you're a new user or an existing trader, using the latest BTCC promo code can unlock valuable trading rewards.</p>
-    
+    <a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
   <h2>What is the BTCC Referral Code for 2025?</h2>
   <p>The official BTCC referral code for 2025 is <strong>BTCCBONUS</strong>, giving users access to significant trading perks when signing up.</p>
     
